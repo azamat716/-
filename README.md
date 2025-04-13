@@ -1,1 +1,2 @@
-# -
+Photorealistic figurine of a smiling male massage therapist in a blister pack. He has fair skin, short brown hair tucked up on the right side, a beard, and is dressed in dark green medical clothing with ‘yashlek’ written on the side of the uniform. He wears black sandals. Accessories inside the package include: a massage table, vacuum jars, a towel, and a percussion massage gun. The scene is lit with soft studio lighting, in sharp focus, against a clean background, in a modern retail production style.
+Text on the package: ‘AZAMAT MASAŻYST’ at the top and ‘Professional massage.’ at the bottom.”
